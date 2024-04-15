@@ -2,7 +2,7 @@
 
 - ⚡ HE/IT + MORE Stuff ON MY PRONOUNS.PAGE (Linked!)
   
-- ☎️ I LIKE Talking Heads and also DEltarune If you couldnt Tell. swatchton My life for ever. Swatch skins INT NNOOOWWWW come kiss me on my hot mouth Boy. I ALSO LIKE SPLATOON It transgendered me about.. Hmmm. 5 years ago Iso padre is MY fave By the way hes MyBEST friend Ok trust me.
+- ☎️ I LIKE Talking Heads and also DEltarune If you couldnt Tell. swatchton My life for ever. Swatch skins INT NNOOOWWWW come kiss me on my hot mouth Boy. I ALSO LIKE SPLATOON It transgendered me about.. Hmmm. 5 years ago Iso padre is MY fave By the way hes MyBEST friend Ok trust me. Kris Deltarune is also my best friend For real me and that kid we got so much in common Alright. OK KRis. Now hit The Second Tower
 
 - 👇BFYI!!!!!!!👇
 
