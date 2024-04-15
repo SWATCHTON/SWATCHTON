@@ -4,7 +4,9 @@
   
 - ☎️ I LIKE Talking Heads and also DEltarune If you couldnt Tell. swatchton My life for ever. Swatch skins INT NNOOOWWWW come kiss me on my hot mouth Boy. I ALSO LIKE SPLATOON It transgendered me about.. Hmmm. 5 years ago Iso padre is MY fave By the way hes MyBEST friend Ok trust me. Kris Deltarune is also my best friend For real me and that kid we got so much in common Alright. OK KRis. Now hit The Second Tower
 
-- 👇BFYI!!!!!!!👇
+- ⇩ BFYI!!!!!!! ⇩
+
+- ⚠️ MOST OF THE TIME I dont afk because I get bored and despite my tremendous anxiety I begin to crave interaction Like a sickly dehydrated animal craves water and shade. BUT If I am im usually on away. PLEAAASE Whisper me 2 interact or crown me or something!!!! Otherwise I will not see it!! sometiems I forget to change my status symbol though Oopsy Daisees Aha sorry about that.. I tab in and out frequently though So thats probably why.
 
 - ⚠️ I like to pt kiss people. Like. Chronically. Im a lover Ok.. I used tobe AHater Im still A Hater sometimes (FUCK THOSE ADDISONS!!!!) But I like to Kiss peolpe .. platonic ALWAYS.. I just looove to Kiss.. MWA MWA MWA MWA MWA Love wins (Except for if Im allowed to Kill people then maybe Im win) BUT! JUST tell me If its uncomfortable Ill stop <:-D
   
