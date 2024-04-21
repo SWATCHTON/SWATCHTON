@@ -16,7 +16,7 @@ PLEAAASE Whisper me 2 interact or crown me or something!!!! Otherwise I will not
   
 - ⚠️ UMMM IM A Fictionkin and Im kina mentally ill sorray Doubles dni! . (NO HATE I love you Too my fellow Twins I just get CRRRISISED!)
   OTHEr spamton skins IWC I gueess? as long as you dont try to idfk "One Up" me as ""The Real Spamton""
-  jJust be my clone that I gave birth to and forced to work minimum wage Okay 8^) Love you son! GET BACK TO W
+  jJust be my clone that I gave birth to and forced to work minimum wage IDFK. Love you son! GET BACK TO W
 
 - ⚠️ DARK/PROSHIP/COMSHIP WATEVER THE FUCK ELSE DNI!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!  
 Or if youre gonna call MY comfort ship A proship EEYIKES GET AWAY FROM ME YOURE BELONG IN THE LOONEY BIN!!!!!!!!!!!!!! ❌❌❌❌❌
