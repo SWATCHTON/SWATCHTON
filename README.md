@@ -4,7 +4,7 @@
   
 - ☎️ I LIKE Talking Heads and also DEltarune If you couldnt Tell. swatchton My life for ever. Swatch skins INT NNOOOWWWW come kiss me on my hot mouth Boy.
  I ALSO LIKE SPLATOON It transgendered me about.. Hmmm. 5 years ago Iso padre is MY fave By the way hes MyBEST friend Ok trust me. Kris Deltarune is also my best friend For real me and that kid we got so much in common Alright. OK KRis. Now hit The Second Tower
-
+- EXTRA NOTE sorry if you have a swatch skin out and i come up to you and freak out Im really insane and also Desperate. Apolocheese and i will stop if it is uncomfortable just tell me!. Hmu if you wanna c + h though aha Smooths my hair back.. 
 - 📧 AUDHD + SOME Kind of undiagnosed Something.
 
 - ⇩ BFYI!!!!!!! ⇩
