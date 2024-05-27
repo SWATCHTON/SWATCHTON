@@ -1,6 +1,6 @@
 Message My [[Retrospring](https://retrospring.net/@SPAMTON_GSPAMTON)]
 
-- 💾 Im.. SPAMTON! Otherwise known as SPAMTON, Ultimate Lover... (HeLlo LOVENATION) 💗💗💗💗💗
+- 💾 Im.. SPAMTON! Otherwise known as SPAMTON, Ultimate Lover... (Hello LOVENATION) 💗💗💗💗💗
 
 - ⚡ HE/IT + MORE [[Stuff](https://en.pronouns.page/@SP4MINAT0R)]
   
