@@ -8,7 +8,7 @@ Message My [[Retrospring](https://retrospring.net/@SPAMTON_GSPAMTON)]
  I ALSO LIKE SPLATOON. Iso padre is MY fave By the way hes MyBEST friend Ok trust me. Kris Deltarune is also my best friend For real me and that kid we got so much in common Alright. OK KRis. Now hit The Second Tower
 
   EXTRA NOTE sorry if you have a swatch skin out and i come up to you and freak out Im really insane and also Desperate. Apolocheese and i will stop if it is uncomfortable just tell me!. Hmu if you wanna c + h though aha Smooths my hair back.. 
-- 📧 ADHD + Autism + SOME Kind of undiagnosed Something. Tis i.. Neurodiverse Minor..
+- 📧 ADHD + Autism + SOME Kind of undiagnosed Something. 
 
 - ⇩ BFYI!!!!!!! ⇩
 
