@@ -23,7 +23,7 @@ Sometimes I sit with my friends too. Usually actually. Hi Pals <3 even then your
   OTHEr spamton skins IWC I gueess? as long as you dont try to idfk "One Up" me as ""The Real Spamton""
   ok Twin... we're Twins okay. Hi Twin. <3
 
-- ⚠️ DARK/PROSHIP/COMSHIP WATEVER THE FUCK ELSE DNI!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!  
+- ⚠️ Basic dni + DARK/PROSHIP/COMSHIP WATEVER THE FUCK ELSE DNI!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!  
 Or if youre gonna call MY comfort ship A proship EEYIKES GET AWAY FROM ME YOURE INSANE!!!!!!!!!!!!!! ❌❌❌❌❌
 
 - GOOD Bye,REmember to fallow for more 🔥🔥🔥HIT💸POST🔥🔥🔥
