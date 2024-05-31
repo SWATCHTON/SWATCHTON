@@ -27,7 +27,8 @@ Sometimes I sit with my friends too. Usually actually. Hi Pals <3 even then your
   
  ⚠️ UMMM IM A Fictionkin and Im kina mentally ill sorray Doubles dni! . (sorry I love you Too my fellow Twins I just cant handle it)
   OTHER spamton skins Uhm IWC I gueess? as long as you dont try to idfk "One Up" me as ""The Real Spamton""
-  ok Twin... we're Twins okay. Hi Twin. <3 Dont be strange
+  ok Twin... we're Twins okay. Hi Twin. <3 
+   * Dont be strange btw. Pleaseee dont like. Idk. Try to be sexual towards me becaise i have a spamton skin out/im a fictionkin. Or maybe dont int at all if youre like Into me. Its A little uncomfortable. And yes I do i/me The fictional character I cant not because im #mentallyill sorry
 
  ⚠️ Basic dni + DARK/PROSHIP/COMSHIP WATEVER THE FUCK ELSE DNI!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!  
 Or if youre gonna call MY comfort ship A proship EEYIKES GET AWAY FROM ME YOURE INSANE!!!!!!!!!!!!!! ❌❌❌❌❌
