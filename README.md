@@ -2,7 +2,7 @@ Message My [[Retrospring](https://retrospring.net/@SPAMTON_GSPAMTON)]
 
 💾 Im.. SPAMTON! Otherwise known as SPAMTON, Ultimate Lover... (Hello LOVENATION) 💗💗💗💗💗
 
-⚡ HE/IT + MORE [[Stuff](https://en.pronouns.page/@SP4MINAT0R)]
+⚡ **FICTIONKIN** + **TECHKIN!** HE/IT + MORE [[Here](https://en.pronouns.page/@SP4MINAT0R)]
   
 ☎️ I LIKE..
  - Deltarune (swatchton My life for ever. Swatch skins INT NNOOOWWWW come kiss me on my hot mouth Boy.)
@@ -25,12 +25,12 @@ Sometimes I sit with my friends too. Usually actually. Hi Pals <3 even then your
 
  ⚠️ I like to pt kiss people. Like. Chronically. Im a lover Ok.. I used tobe AHater Im still A Hater sometimes (FUCK THOSE ADDISONS!!!!) But I like to Kiss peolpe .. platonic ALWAYS.. I just looove to Kiss.. MWA MWA MWA MWA MWA Love wins  BUT! JUST tell me If its uncomfortable Ill stop <:-D
   
- ⚠️ UMMM IM A Fictionkin and Im kina mentally ill sorray Doubles dni! . (sorry I love you Too my fellow Twins I just cant handle it)
+ ⚠️ UMMM IM A **Fictionkin** and Im kinda mentally ill sorray **Doubles dni!** . (sorry I love you Too my fellow Twins I just cant handle it)
   OTHER spamton skins Uhm IWC I gueess? as long as you dont try to idfk "One Up" me as ""The Real Spamton""
   ok Twin... we're Twins okay. Hi Twin. <3 
    * Dont be strange btw. Pleaseee dont like. Idk. Try to be sexual towards me becaise i have a spamton skin out/im a fictionkin. Or maybe dont int at all if youre like Into me. Its A little uncomfortable. And yes I do i/me The fictional character I cant not because im #mentallyill sorry
 
- ⚠️ Basic dni + DARK/PROSHIP/COMSHIP WATEVER THE FUCK ELSE DNI!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!  
+ ⚠️ Basic dni + **DARK/PROSHIP/COMSHIP WATEVER THE FUCK ELSE DNI!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!**  
 Or if youre gonna call MY comfort ship A proship EEYIKES GET AWAY FROM ME YOURE INSANE!!!!!!!!!!!!!! ❌❌❌❌❌
 
  GOOD Bye,Remember to fallow for more 🔥🔥🔥Hit💸Posts🔥🔥🔥
