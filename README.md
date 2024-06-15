@@ -5,7 +5,7 @@ Message My [[Retrospring](https://retrospring.net/@SPAMTON_GSPAMTON)]
 ⚡ **FICTIONKIN** + **TECHKIN!** HE/IT + MORE [[Here](https://en.pronouns.page/@SP4MINAT0R)]
   
 ☎️ I LIKE..
- - Deltarune (swatchton My life for ever. Swatch skins INT NNOOOWWWW come kiss me on my hot mouth Boy.)
+ - Deltarune (swatchton My life for ever. Swatch skins INT PLEASE PLEASE PLEASE PLEASE PLeASE PLEA)
  - Splatoon
  - Talking Heads 🗣️
  - Tech and Digital Stuff. Mostly older eras (incoming hyperfix that hasnt happened full throttle yet but it probably will)
@@ -14,7 +14,7 @@ Message My [[Retrospring](https://retrospring.net/@SPAMTON_GSPAMTON)]
 (EXTRA NOTE sorry if you have a swatch skin out and i come up to you and freak out Im really insane and also Desperate. Apolocheese and i will stop if it is uncomfortable just tell me!. Hmu if you wanna c + h though aha Smooths my hair back..) 
 
 
- 📧 ADHD + Autism + SOME Kind of undiagnosed Something. 
+ 📧 ADHD + Autism + S
 
  ⇩ BFYI!!!!!!! ⇩
 
