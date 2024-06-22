@@ -13,6 +13,8 @@ Message My [[Retrospring](https://retrospring.net/@SPAMTON_GSPAMTON)]
 
 (EXTRA NOTE sorry if you have a swatch skin out and i come up to you and freak out Im really insane and also Desperate. Apolocheese and i will stop if it is uncomfortable just tell me!. Hmu if you wanna c + h though aha Smooths my hair back..) 
 
+⚙️ If I log on and U sitting in my spot Ill just cuddle IDGAF if U dont like it just hide me or move Im full of Love... Not my fault you dont want it. Just know if u hide me ill still sit there and cuddle yoy ❤️
+
 
  📧 ADHD + Autism + S
 
