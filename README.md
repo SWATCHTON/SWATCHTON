@@ -16,7 +16,7 @@ Message My [[Retrospring](https://retrospring.net/@SPAMTON_GSPAMTON)]
 ⚙️ If I log on and U sitting in my spot Ill just cuddle IDGAF if U dont like it just hide me or move Im full of Love... Not my fault you dont want it. Just know if u hide me ill still sit there and cuddle yoy ❤️
 
 
- 📧 ADHD + Autism + S
+ 📧 ADHD + Autism. I have really bad memory issues sorry if we interact and I dont remember you ITS NOTHING PERSONAL I PROMISE I Just have the memory of A Rock....
 
  ⇩ BFYI!!!!!!! ⇩
 
