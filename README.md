@@ -1,5 +1,8 @@
 Message My [[Retrospring](https://retrospring.net/@SPAMTON_GSPAMTON)]
 
+Or my [[WIP Atabook](https://spamton.atabook.org/)]
+
+
 💾 Im.. SPAMTON! Otherwise known as SPAMTON, Ultimate Lover... (Hello LOVENATION) 💗💗💗💗💗
 
 ⚡ **FICTIONKIN** + **TECHKIN!** HE/IT + MORE [[Here](https://en.pronouns.page/@SP4MINAT0R)]
