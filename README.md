@@ -11,6 +11,7 @@ Or my [[WIP Atabook](https://spamton.atabook.org/)]
  - Deltarune (swatchton My life for ever. Swatch skins INT PLEASE PELASE P)
  - Splatoon
  - Talking Heads 🗣️
+ - MAX HEADROOM :fire::fire::fire: Im just getting into it
  - Tech and Digital Stuff. Mostly older eras (incoming hyperfix that hasnt happened full throttle yet but it probably will)
  - And marine bio its my spinterest. "Theres so many fish in the sea" Yes and I love them all every single one. Mwa mwa mwa Big Kisses to All The Fishes.
 
