@@ -5,7 +5,7 @@ Or my [[WIP Atabook](https://spamton.atabook.org/)]
 
 💾 Im.. SPAMTON! Otherwise known as SPAMTON, Ultimate Lover... (Hello LOVENATION) 💗💗💗💗💗
 
-⚡ **FICTIONKIN** + **TECHKIN.** HE/IT + MORE [[Here](https://en.pronouns.page/@SP4MINAT0R)]
+⚡ **FICTIONKIN** + **TECHKIN.** HE/IT
   
 ☎️ INTERESTS
  - Deltarune (swatchton My life for ever. Swatch skins Call me im free later)
