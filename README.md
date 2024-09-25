@@ -13,8 +13,7 @@ Or my [[WIP Atabook](https://spamton.atabook.org/)]
  - Talking Heads 🗣️
  - MAX HEADROOM :fire::fire::fire: Im just getting into it
  - Star trek i was assigned trekkie at birth (never watched tos yet though. be nice to me i keep forgetting)
- - Tech and Digital Stuff. Mostly older eras (incoming hyperfix that hasnt happened full throttle yet but it probably will)
- - And marine bio its my spinterest. "Theres so many fish in the sea" Yes and I love them all every single one. Mwa mwa mwa Big Kisses to All The Fishes.
+ - And marine bio its my spinterest. Theres are so many fish in the sea.. and I love them all every single one. Mwa mwa mwa Big Kisses to All The Fishes.
 
 (EXTRA NOTE sorry if you have a swatch skin out and i come up to you and freak out. i am um a big fan of Swatch deltarune. Apolocheese and i will stop if it is uncomfortable just tell me!. Hmu if you wanna c + h though aha Smooths my hair back..) 
 
