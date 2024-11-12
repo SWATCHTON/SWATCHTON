@@ -11,9 +11,10 @@ Or my [[WIP Atabook](https://spamton.atabook.org/)]
  - Deltarune (swatchton My life for ever. Swatch skins lets cuddle plus hide and green name ❤️ )
  - Splatoon
  - Talking Heads 🗣️
- - MAX HEADROOM :fire::fire::fire: Im just getting into it
+ - Neon White. I will personally lobotomize Neon Green
+ - MAX HEADROOM :fire::fire::fire: 
  - Star trek i was assigned trekkie at birth (never watched tos yet though. be nice to me i keep forgetting)
- - And marine bio its my spinterest. Theres are so many fish in the sea.. and I love them all every single one. Mwa mwa mwa Big Kisses to All The Fishes.
+ - Marine bio its my spinterest. Theres are so many fish in the sea.. and I love them all every single one. Mwa mwa mwa Big Kisses to All The Fishes.
 
 (EXTRA NOTE sorry if you have a swatch skin out and i come up to you and freak out. i am um a big fan of Swatch deltarune. Apolocheese and i will stop if it is uncomfortable just tell me!. Hmu if you wanna c + h though aha Smooths my hair back..) 
 
@@ -40,7 +41,7 @@ I sit with my friends uaually. Hi Pals <3 youre allowed to int with me or whatev
   ok Twin... we're Twins okay. Hi Twin. <3 
    * Dont be strange in general. dont Try to be sexual towards me because i have a spamton skin out/im a fictionkin or whatever. Maybe dont int at all if youre like Into me like that. Its A little uncomfortable.. And yes I do i/me The fictional character I cant not Thats me idk what to tell you if you dont fw that dont int ez solution 
 
- ⚠️ Basic dni + **DARK/PROSHIP/COMSHIP WATEVER THE FUCK ELSE DNI!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!**  
+ ⚠️ Basic dni + **DARK/PROSHIP/COMSHIP WATEVER THE FUCK ELSE You FREAKS Call your selves DNI!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!**  
 Or if youre gonna call MY comfort ship A proship EEYIKES GET AWAY FROM ME YOURE INSANE!!!!!!!!!!!!!! ❌❌❌❌❌
 
  This is long yes apologies but i dont have a rentry/strawpage yet but i will eventually ok jut trust me. its really long and ugly yes i know but im lazy af im so so lazy im so lazy they call me The sloth im lounging bro im lounging while you painstakingly read through this god awful layout im yawning and stretching out on my big luxurious couch bro im lounging 
