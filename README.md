@@ -44,5 +44,5 @@ Or if youre gonna call MY comfort ship A proship EEYIKES GET AWAY FROM ME YOURE 
 
  This is long yes apologies but i dont have a rentry/strawpage yet but i will eventually ok jut trust me. its really long and ugly yes i know but im lazy af im so so lazy im so lazy they call me The sloth im lounging bro im lounging while you painstakingly read through this god awful layout im yawning and stretching out on my big luxurious couch bro im lounging 
 
-![Face Reveal](https://file.garden/ZhZPB1LLjRCJOu7W/gangsterton.gif)
+![Face Reveal](https://file.garden/ZhZPB1LLjRCJOu7W/gangsterton.png)
 
