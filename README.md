@@ -36,10 +36,8 @@ I sit with my friends uaually. Hi Pals <3 youre allowed to int with me or whatev
 
   I like to pt kiss people. Like. Chronically. Im a lover Ok. I like to Kiss peolpe .. platonic ALWAYS.. I just looove to Kiss.. MWA MWA MWA MWA MWA Love wins  BUT! JUST tell me If its uncomfortable Ill stop <:-D
   
- ⚠️ IM a **Fictionkin** and wprobably mental **Doubles dni** . (sorry I love you Too my fellow Twins I just cant handle it)
-  OTHER spamton skins Uhm IWC I gueess? as long as you dont try to idfk "One Up" me as ""The Real Spamton""
-  ok Twin... we're Twins okay. Hi Twin. <3 
-   * Dont be strange in general. dont Try to be sexual towards me because i have a spamton skin out/im a fictionkin or whatever. Maybe dont int at all if youre like Into me like that. Its A little uncomfortable.. And yes I do i/me The fictional character I cant not Thats me idk what to tell you if you dont fw that dont int ez solution 
+ ⚠️ IM a **Fictionkin** and wprobably mental **Doubles dni** . (sorry I love you Too my fellow Twins I just cant handle it) spamton skins Honest to Gawd just dontbe weird And try and "One Up" me Or something Notlike it BOTHERS me bothers me but its mostly #Annoying please..please.. Gets down on my knee and starts crying..BE NORMAL!!!!!!!!!!!!!!!!!!!!!!!!!
+   * Dont be strange in general. dont Try to be sexual towards me because i have a spamton skin out/im a fictionkin or whatever. Maybe dont int at all if youre like Into me like that. Its A little uncomfortable.. And yes I do i/me The fictional character I cant not Thats me idk what to tell you if you dont fw that dont int #EASYSOLUTION
 
  ⚠️ Basic dni + **DARK/PROSHIP/COMSHIP WATEVER THE FUCK ELSE You FREAKS Call your selves DNI!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!**  
 Or if youre gonna call MY comfort ship A proship EEYIKES GET AWAY FROM ME YOURE INSANE!!!!!!!!!!!!!! ❌❌❌❌❌
