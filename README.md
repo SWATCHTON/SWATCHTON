@@ -24,6 +24,8 @@ Or my [[WIP Atabook](https://spamton.atabook.org/)]
 
  📧 ADHD + Autism. I have really bad memory issues sorry if we interact and I dont remember you ITS NOTHING PERSONAL I PROMISE I Just have the memory of A Rock....
 
+   <img src="https://file.garden/ZhZPB1LLjRCJOu7W/spam%20as%20it%20ever%20was.gif" alt="I LOVE TALKING HEADS!" width="400" height="100">
+
  ⇩ BYI ⇩
 
  ⚠️ I make kys/kms jokes (not to strangers most of the time) and 9/11 joke and reclaim slurs if you dont like that Tell me i wont say that around you i promys i am nice im nice im nice im nice im a nice boy!!!!!!!!!!!!!
