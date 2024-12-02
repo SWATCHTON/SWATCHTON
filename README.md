@@ -1,7 +1,6 @@
-Message My [[Retrospring](https://retrospring.net/@SPAMTON_GSPAMTON)]
+Message my [[Atabook](https://spamton.atabook.org/)]
 
-Or my [[WIP Atabook](https://spamton.atabook.org/)]
-
+Or sign my [[Holy Joly Tree](https://colormytree.me/2024/01GN467X3045Z1DR08ZCV2EKXM)]
 
 💾 Im.. SPAMTON... Otherwise known as SPAMTON, Ultimate Lover... (Hello LOVENATION) 💗💗💗💗💗
 
@@ -11,7 +10,7 @@ Or my [[WIP Atabook](https://spamton.atabook.org/)]
  - Deltarune (swatchton My life for ever. Swatch skins lets cuddle plus hide and green name ❤️ )
  - Splatoon
  - Talking Heads 🗣️
- - Neon White. I will personally lobotomize Neon Green
+ - Neon White. I will personally lobotomize Neon Green (i am in love with him IN A NARRATIVELY LITERATE WAY please dont killme. if you think you hate him Know i hate him more. i just also Love him)
  - MAX HEADROOM :fire::fire::fire: 
  - Star trek i was assigned trekkie at birth (never watched tos yet though. be nice to me i keep forgetting)
  - Marine bio its my spinterest. Theres are so many fish in the sea.. and I love them all every single one. Mwa mwa mwa Big Kisses to All The Fishes.
