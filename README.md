@@ -4,7 +4,7 @@ Spamtonnio tony spamton
 
 PROSHIP DNI 
 
-I like talking heads and xtc and deltarune and neon white(Much to my dismay) and star trek
+I like talking heads and xtc and deltarune and neon white(Much to my dismay) and star trek and max headroom
 
 Fictionkin but thats not important right now
 
