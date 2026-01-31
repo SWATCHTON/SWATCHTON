@@ -6,7 +6,9 @@ PROSHIP DNI
 
 I like talking heads and xtc and deltarune and neon white(Much to my dismay) and star trek and max headroom
 
-Fictionkin but thats not important right now
+99.9% Chance AFK
+
+Fictionkin but thats not important right now. I hate the term doubles Twins interact if you so wish Just dont be weird #EASY
 
 Madly In Love With Swatch Deltarune. 
 Madly In HATE With Neon Green from Hit Game Neon White 
